@@ -1,3 +1,8 @@
-# hello-darkness-my-old-friend-world
-hello-world
-i am a fish on a journey to die
+# hello-world
+
+Hi, My name is nyte and i like people who are made out of shells
+i am a shell person
+i deserve to earth cheese
+parmasarn cheese
+
+nyte
